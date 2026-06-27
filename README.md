@@ -1,3 +1,5 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=3200&pause=40&color=E0E4F7&center=true&vCenter=true&width=650&height=120&lines=Date%2C+do+you+like+fireworks%3F+I+love+them.;A+brilliant%2C+glimmering+fragment+of+time.;The+flash+begins+as+a+perfectly-ordered+chemical+reaction...+;that+melts+into+chaos.;Human+lives+are+the+same%2C+are+they+not%3F+As+is+the+universe+itself...;Blooming%2C+scattering+in+the+moment...;And+it's+only+a+single+moment%2C+isn't+it%3F+;A+unique+moment+that+you+can+never+revisit.+;That's+what+makes+life+beautiful.+Don't+you+think+so%3F;But+I've+spoken+enough.+It's+showtime.+;I+will+show+you+the+most+beautiful+fireworks+you've+ever+seen.;The+scattering+of+cerebral+plasma...+The+splattering+blood...+;It's+art.+Perfect%2C+beautiful+art+of+a+lonely+moment+in+time.;Don't+blink.+I+want+this+to+burn+in+your+retinas.+;Well...+the+one+you+have+left.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=15&pause=500&color=F7F7F7&center=true&vCenter=true&width=500&height=24&lines=i'll+see+you+on+the+moon;where+we're+throwing+a+party;and+as+you%E2%80%99re+gasping+for+the+last+of+air;you%E2%80%99ll+tra-la-la-la-la~;twirling+moondust+abound;lung+destruction+is+starting;take+your+suit+off+and+swim+in+maria+.+.+.)](https://git.io/typing-svg)
+  
+  
+  ![](https://komarev.com/ghpvc/?username=vsithe&label=VISITORS...&color=lightgrey)
 
-  ![](https://komarev.com/ghpvc/?username=sejimas&label=PSYNC+SUBJECTS...&color=lightgrey)
