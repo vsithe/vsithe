@@ -12,3 +12,5 @@
 <p align="center"> check https://yugami.straw.page/favs for the characters i like.
 
 <p align="center"> feel free to interact with me as much as you want. i am rather talkative unless i've explicitly indicated otherwise. i'm not good @ using github so i'd advise looking at my strawpage[s] to know more.
+
+<div id="sfcpuhbkf2lqyfx485a86u9rt898dd5g5cy"></div><noscript><a href="https://www.freecounterstat.com" title="website hit counter"><img src="https://counter11.optistats.ovh/private/freecounterstat.php?c=puhbkf2lqyfx485a86u9rt898dd5g5cy" border="0" title="website hit counter" alt="website hit counter"></a></noscript>
