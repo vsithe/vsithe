@@ -7,7 +7,9 @@
 <p align="center"> vince or sithe  ㅤ ⟡  ㅤ 18 ㅤ  ⟡ ㅤ  multifandomㅤ <img src="https://64.media.tumblr.com/7e071d3cb815dd77cbfb5269f948a246/6cffa757c88fb04c-03/s75x75_c1/563d18a7ba8b3d68d7639343b2f865d35d199efb.gifv"> ㅤ 🇲🇽🇵🇷  ㅤ  ⟡ ㅤ  any/him  ㅤ ⟡  ㅤ 𝘪𝘯𝘵𝘱-𝘵 6𝘸5 <p align="center">
  
 
-<p align="center"> hi, i'm vince. i'm a fanartist who also dabbles in oc stuff and writing. i'm really into ace attorney, persona 5, mononoke, ghost trick, and ai the somnium files. check the strawpage linked on this profile for more!
+<p align="center"> hi, i'm vince. i'm a fanartist who also dabbles in oc stuff and writing. i'm into ace attorney, p5, mononoke, gtrick, and aitsf. check the strawpage linked on this profile for everything.
+<p align="center"> c/h encouraged. i tend to be offtab so if i don't respond to you, please whisper me. 
+
 
 <p align="center"> 
 <p align="center"> 
