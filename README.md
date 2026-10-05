@@ -8,13 +8,13 @@
  
 
 <p align="center"> hi, i'm vince. i'm a fanartist who also dabbles in oc stuff and writing. i'm into ace attorney, p5, mononoke, gtrick, and aitsf. check the strawpage linked on this profile for everything.
-<p align="center"> c/h encouraged. i tend to be offtab so if i don't respond to you, please whisper me. 
+<p align="center"> c+h encouraged. i tend to be offtab so if i don't respond to you, please whisper me. right now, i'm very forgetful & lethargic due to health issues + i'm shy and struggle with tone; please do not take it personally...! i promise i'm nice.
 
 
 <p align="center"> 
 <p align="center"> 
 
-![](https://komarev.com/ghpvc/?username=vsithe&label=POTENTIAL+SUSPECTS...&color=grey&base=503)
+![](https://komarev.com/ghpvc/?username=vsithe&label=witnesses&color=grey&base=503)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=15&pause=500&color=F7F7F7&center=true&vCenter=true&width=500&height=24&lines=i'll+see+you+on+the+moon;where+we're+throwing+a+party;and+as+you%E2%80%99re+gasping+for+the+last+of+air;you%E2%80%99ll+tra-la-la-la-la~;twirling+moondust+abound;lung+destruction+is+starting;take+your+suit+off+and+swim+in+maria+.+.+.)](https://git.io/typing-svg)
  </p>
  <img src="https://64.media.tumblr.com/f2f955ecfe9adfb16d6a1171c3943b83/d89fa8f1caeca23f-6f/s100x200/cbfbbd319e397dd7a7b0fd5fc3b232aecce63a98.pnj">
