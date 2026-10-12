@@ -1,20 +1,25 @@
-<p align="center">
-  <img src="https://file.garden/akcyCqNOvjJrT4ve/tumblr_829f9220794db1517aef1a1d77a1986c_acb65948_2048.png">
-</p>
-
   
-  
-<p align="center"> vince or sithe  ㅤ ⟡  ㅤ 18 ㅤ  ⟡ ㅤ  multifandomㅤ <img src="https://64.media.tumblr.com/7e071d3cb815dd77cbfb5269f948a246/6cffa757c88fb04c-03/s75x75_c1/563d18a7ba8b3d68d7639343b2f865d35d199efb.gifv"> ㅤ 🇲🇽🇵🇷  ㅤ  ⟡ ㅤ  any/him  ㅤ ⟡  ㅤ 𝘪𝘯𝘵𝘱-𝘵 6𝘸5 <p align="center">
- 
-
-<p align="center"> hi, i'm vince. i'm a fanartist who also dabbles in oc stuff and writing. i'm into ace attorney, p5, mononoke, gtrick, and aitsf. check the strawpage linked on this profile for everything.
-<p align="center"> c+h encouraged. i tend to be offtab so if i don't respond to you, please whisper me. right now, i'm very forgetful & lethargic due to health issues + i'm shy and struggle with tone; please do not take it personally...! i promise i'm nice.
-
-
-<p align="center"> 
-<p align="center"> 
-
-![](https://komarev.com/ghpvc/?username=vsithe&label=witnesses&color=grey&base=503)
+  <img src="https://64.media.tumblr.com/4c628c01db526188ada64a961975d832/5a65c4633012a6b7-f2/s540x810/ff49452c9576dc82fd21b1965bab984922cfe2af.pnj" width="400" align="left"> 　
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=15&pause=500&color=F7F7F7&center=true&vCenter=true&width=500&height=24&lines=i'll+see+you+on+the+moon;where+we're+throwing+a+party;and+as+you%E2%80%99re+gasping+for+the+last+of+air;you%E2%80%99ll+tra-la-la-la-la~;twirling+moondust+abound;lung+destruction+is+starting;take+your+suit+off+and+swim+in+maria+.+.+.)](https://git.io/typing-svg)
  </p>
- <img src="https://64.media.tumblr.com/f2f955ecfe9adfb16d6a1171c3943b83/d89fa8f1caeca23f-6f/s100x200/cbfbbd319e397dd7a7b0fd5fc3b232aecce63a98.pnj">
+
+　　　　<img src="https://64.media.tumblr.com/6baf78cc82caea8356c7791067e79bdb/tumblr_n6mqw5e4FF1sd0d7go3_250.gifv" width="400" align="center">            　　　　　　　
+ ⠀
+
+                
+ <p align="center"> ᴠɪɴᴄᴇ / ꜱɪᴛʜᴇ ㅤ ⟡ ㅤ 18 ㅤ ⟡ ㅤ ᴀɴʏ/ʜɪᴍ ㅤ ⟡ ㅤ ɪɴᴛᴘ-ᴛ 6ᴡ5
+ <p align="center">
+          
+<p align="center"> c+h encouraged. i tend to be offtab so if i don't respond to you, please whisper me. check links below for more.
+
+
+
+                      
+　　　<p align="center">　　           [新book](https://blackquill.atabook.org/)　　　[strawpage](https://vsithe.straw.page
+)　　　[fluffle.cc](https://fluffle.cc/blackquil
+)
+           
+
+
+                      
+![](https://komarev.com/ghpvc/?username=vsithe&label=witnesses&color=grey&base=503)
